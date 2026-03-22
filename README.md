@@ -1,2 +1,2 @@
 # Hi there, I'm Salvador
-I like graphics programming, AI, and stuff like that
+Hope I can become a farmer one day
